@@ -1,0 +1,1 @@
+Not optimized for Smartphone
